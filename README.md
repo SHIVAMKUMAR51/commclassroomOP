@@ -1,3 +1,21 @@
+A
+
+
+
+
+
+
+
+SHIVAM LIVES IN INDIA
+
+DINDIA
+CSHIVAM
+
+A
+B
+C
+
+B
 # Community Classroom is OP
 
 - Kunal Kushwaha says that this community is amazing.
